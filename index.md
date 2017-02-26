@@ -7,7 +7,7 @@ title: Mounds View Science Olympiad
 
 With over 80 members, Mounds View Science Olympiad is one of the largest and most successful academic teams at [Mounds View High School](http://www.moundsviewschools.org/moundsview). Coached by Mr. Michael Huberty, Mr. Dan Butler, and Mr. Thomas Carr, Mounds View has won the Minnesota State Tournament ten times – a Minnesota state record.
 
-[Science Olympiad](https://www.soinc.org/) is America's foremost team science competition, in which teams of up to 15 students compete in 23 different events, ranging from astronomy and entomology to bridge building and experimental design.. For each event, students work in teams of two to three students. Each year, Mounds View sends as many five teams of 15 members to 3-4 invitational tournaments and one regional tournament, and one team of 15 members to the state and national tournaments. With the inception of a new Hybrid Applied Science class in the past three years, students have the opportunity to earn academic credit for participation in Science Olympiad.
+[Science Olympiad](https://www.soinc.org/) is America's foremost team science competition, in which teams of up to 15 students compete in 23 different events, ranging from astronomy and entomology to bridge building and experimental design.. For each event, students work in teams of two to three students. Each year, Mounds View sends as many five teams of 15 members to 3-4 invitational tournaments and one regional tournament, and one team of 15 members to the state and national tournaments.
 
 #### History
 
