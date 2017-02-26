@@ -39,4 +39,4 @@ In recent years, the MVSO coaches and team has been involved in the formation an
 
 #### Sponsorship details
 
-See the [sponsorship page](/sponsor.html) for details.
+See the [sponsorship page](sponsor.html) for details.
