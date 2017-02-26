@@ -13,11 +13,11 @@ In the past four years, MVSO has evolved from a local team to a national contend
 
 ##### T-SHIRT LOGO PLACEMENT
 
-Major sponsors will have their logo proudly printed on our next batch of team shirts. Our unique and custom-designed t-shirts make our team instantly identifiable at any competition, where they serve as our uniforms. At tournaments, as many as 75 of our members (5 teams) compete throughout the day among up to a thousand other science olympiad competitors, parents, coaches, and directors. Because we win many of these tournaments, our t-shirt sponsors become very visible during competition and the awards ceremony.MVSO members also sport their team spirit throughout the year in the halls of Mounds View High School. With the introduction of both a long-sleeve and short-sleeve team shirt in the 2013-2014 season, sponsor exposure is high at the local level as well.
+Major sponsors will have their logo proudly printed on our next batch of team shirts. Our unique and custom-designed t-shirts make our team instantly identifiable at any competition, where they serve as our uniforms. At tournaments, as many as 75 of our members (5 teams) compete throughout the day among up to a thousand other science olympiad competitors, parents, coaches, and directors. Because we win many of these tournaments, our t-shirt sponsors become very visible during competition and the awards ceremony. MVSO members also sport their team spirit throughout the year in the halls of Mounds View High School.
 
 ##### TEAM WEBSITE BRANDING
 
-Sponsors will also have their logos published on this website, visible on every page’s footer, the homepage, and the sponsor page. During the peak of the season, our team website has received hundreds of views each week and we expect this to increase with the June 2014 redesign. The new site will offer team updates, competition results, and photo galleries for visitors from the online science olympiad community.
+Sponsors will also have their logos published on this website, visible on every page’s footer, the homepage, and the sponsor page. During the peak of the season, our team website has historically received hundreds of views each week.
 
 ##### OTHER OPTIONS
 
