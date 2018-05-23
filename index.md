@@ -37,6 +37,7 @@ In recent years, the MVSO coaches and team has been involved in the formation an
 |2015|**1st**|**5th**|
 |2016|**1st**|**10th**|
 |2017|**1st**|**7th**|
+
 #### Sponsorship details
 
 See the [sponsorship page](sponsor.html) for details.
